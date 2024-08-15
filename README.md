@@ -8,5 +8,8 @@ Bem vindos heartblue
 
 -Pretendo fazer curso de inglês
 
--Gosto de dormir 
-         
+-Gosto de dormir
+
+**entre em contato comigo em** ana.rufino.silva@escola.pr.gov.br
+
+![](https://media.tenor.com/4042pKhMjhsAAAAM/grey.gif)
